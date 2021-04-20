@@ -22,7 +22,7 @@
 
 3. Wszystkie próby wywołania kłotni , poprzez rozgadywanie nie prawdy/kłamstw jest zabronione.
 
-4. Nie ma takiego czegós jak "**Źle usłyszałem/am**" , jeśli już chce się o jakiś tematach rozmawiać , najpierw trzeba sprawdzić czy się dobrze usłyszało i czy te informacje są prawdziwe.
+4. Nie ma takiego czegós jak "**Źle usłyszałem/am**" lub "**Nie wiedziałem/am**" , jeśli już chce się o jakiś tematach rozmawiać , najpierw trzeba sprawdzić czy się dobrze usłyszało i czy te informacje są prawdziwe.
 
 5. Wszelkie zachowanie , które dla inncyh wydaje się nie miłe lub chamskie jest **ZABRONIONE**
 
