@@ -5,7 +5,8 @@
 </div>
 
 # Ekipa
-**Zasady:**
+-----------------------
+### ***Początek Zasad***
 
 🍧 Zasady! 🍧.
 1. Nie kłócimy się o byle co a, jeśli tak to proszę na priv 😉.
@@ -34,10 +35,10 @@
 
 9. **OBOWIĄZUJE WSZYSTKIE OSOBY CZYTANIE Z ZROZUMIENIEM** , żeby później nie było właśnie że nie było coś wyjaśnione lub/i żeby nfie było kłótni. 
 
-**KONIEC ZASAD**.
+### ***KONIEC ZASAD***.
 
 
-
+---------------------
 ***Członkowie:***
 
 Angelika Kużaj (XxAnglik_).
