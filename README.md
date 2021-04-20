@@ -32,6 +32,9 @@
 
 8. **ZABRONIONE** jest robienie/wysyłanie rzeczy, które wydają się obrzydliwe dla innych , tak samo **ZABRONIONE** jest zachowanie, które dla innych wydaje się obrzydliwe.
 
+9. **OBOWIĄZUJE WSZYSTKIE OSOBY CZYTANIE Z ZROZUMIENIEM** , żeby później nie było właśnie że nie było coś wyjaśnione lub/i żeby nfie było kłótni. 
+
+**KONIEC ZASAD**
 
 ***Członkowie:***
 
