@@ -34,7 +34,9 @@
 
 9. **OBOWIĄZUJE WSZYSTKIE OSOBY CZYTANIE Z ZROZUMIENIEM** , żeby później nie było właśnie że nie było coś wyjaśnione lub/i żeby nfie było kłótni. 
 
-**KONIEC ZASAD**
+**KONIEC ZASAD**.
+
+
 
 ***Członkowie:***
 
