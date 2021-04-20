@@ -6,7 +6,7 @@
 
 # Ekipa
 -----------------------
-### ***Początek Zasad***
+### ***Początek Zasad***.
 
 🍧 Zasady! 🍧.
 1. Nie kłócimy się o byle co a, jeśli tak to proszę na priv 😉.
