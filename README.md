@@ -35,6 +35,9 @@
 
 9. **OBOWIĄZUJE WSZYSTKIE OSOBY CZYTANIE Z ZROZUMIENIEM** , żeby później nie było właśnie że nie było coś wyjaśnione lub/i żeby nfie było kłótni. 
 
+10. **NIE MOŻNA** zdradzać żadnych sekretów, które ktoś ci powiedział , nikomu z naszej ekipy i spoza naszej ekipy, jeśli ten ktoś nie wyraził zgody.
+
+
 ### ***KONIEC ZASAD***.
 
 
