@@ -46,7 +46,7 @@
 
 Angelika Kużaj (XxAnglik_).
 
-Artur Kużaj (NeXsIaK_KoZaK).
+Artur Kużaj (NeXsIaK_Kozak).
 
 Kacper Nowak (ChaeYox).
 
