@@ -5,4 +5,4 @@
 
 ### Kontakt
 
-Możesz się z nami skontaktować na tym discordzie (??????)
+Narazie nima grrrr-chan uwu
